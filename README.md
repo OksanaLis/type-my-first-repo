@@ -1,8 +1,8 @@
-# Sean Kross
+# Less is more
 
 ### Geography
 
-I live in the city of Baltimore, in the state of Maryland, in the United States of America.
+living on the rainbow
 
 ### Reading
 
